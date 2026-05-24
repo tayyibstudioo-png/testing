@@ -5,9 +5,14 @@
 
 ## 🎯 Your Three Core Offers
 
+### YOUR IDEAL CLIENT:
+**Muslim women founders** (service + product-based) who have a business but NO online presence. They need a complete personal brand system (identity + content + offers) but want to DIY with your guidance—not done-for-you.
+
+---
+
 ### 1. Signature Offer: "Founder to Brand Leader" VIP Program
 **Duration:** 12 weeks (3 months)  
-**Price Range:** $3,000 - $5,000  
+**Price Range:** ₹75,000 - ₹1,20,000 ($900 - $1,450)  
 **Format:** 1:1 intensive coaching + group support
 
 **What's Included:**
@@ -23,7 +28,7 @@
 ---
 
 ### 2. Digital Product: "The Muslim Founder's Brand Blueprint"
-**Price Range:** $197 - $497  
+**Price Range:** ₹4,999 - ₹9,999 ($60 - $120)  
 **Format:** Self-paced online course
 
 **What's Included:**
@@ -37,10 +42,12 @@
 
 ---
 
-### 3. 1:1 Mentorship Program: "Brand Clarity Intensive"
-**Duration:** 6 weeks  
-**Price Range:** $1,500 - $2,200  
+### 3. 1:1 Mentorship Program: "Brand Kit Intensive" ⭐ START HERE!
+**Duration:** 8 weeks (2 months)  
+**Price Range:** ₹25,000 - ₹35,000 ($300 - $420) FOUNDING MEMBER PRICING  
 **Format:** Focused 1:1 mentorship
+
+**THIS IS YOUR FIRST OFFER - PERFECT FOR BEGINNERS!**
 
 **What's Included:**
 - 6 bi-weekly 1:1 calls (45 minutes each)
